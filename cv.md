@@ -3,7 +3,7 @@
 ---
 ### Contact info
 - E-mail: [carlyk66@gmail.com](mailto:carlyk66@gmail.com)  
-- Phone: [+7 (999) 182 26 67](tel:+79991852167)
+- Phone: [+7 (963) 028 60 72](tel:+79630286072)
 - Skype [v1238426](skype:v1238426?userinfo)
 
 ### Summary
