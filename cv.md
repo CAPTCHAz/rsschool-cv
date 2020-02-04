@@ -8,7 +8,7 @@
 
 ### Summary
  It's my first exprerience in learning online, I am interested a lot and i hope it'll go fine.
- Now I am learning C++ and Assembler in the University
+ Now I am learning C++ and Assembler in the University.
 
  ---
  
